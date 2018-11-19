@@ -1,0 +1,2 @@
+Edzéselméleti alapok
+====================
